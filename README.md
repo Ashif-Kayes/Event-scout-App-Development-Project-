@@ -1,1 +1,0 @@
-# Event-scout-App-Development-Project-
